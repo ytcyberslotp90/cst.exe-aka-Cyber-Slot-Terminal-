@@ -51,8 +51,3 @@ For updates, support, and exclusive content:
 📺 YouTube Channel: Cyber Slot — Please Subscribe!  
 🔗 Channel URL: https://www.youtube.com/channel/UCON2q5tin1NHZ0J6G7Yi_Kw  
 ✉️ Developer: Krishnendu Maji
-Thanks to ebola man (for the ANSI codes)
-Subscribe to  ebola man , CYBER SOLDIER
-============================================
-💥 THANK YOU FOR USING CYBER SLOT TERMINAL 💥  
-============================================
