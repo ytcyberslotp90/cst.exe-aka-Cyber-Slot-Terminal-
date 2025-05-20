@@ -52,13 +52,7 @@ For updates, support, and exclusive content:
 🔗 Channel URL: https://www.youtube.com/channel/UCON2q5tin1NHZ0J6G7Yi_Kw  
 ✉️ Developer: Krishnendu Maji
 Thanks to ebola man (for the ANSI codes)
-Subscribe to :- 
-ebola man
-CYBER SOLDIER (aka Clutter)
-Pankoza
-FlyTech Videos
-Enderman(aka Endermanch)
-Fr4talz
+Subscribe to  ebola man , CYBER SOLDIER
 ============================================
 💥 THANK YOU FOR USING CYBER SLOT TERMINAL 💥  
 ============================================
