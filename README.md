@@ -1,5 +1,5 @@
-Cyber Slot Terminal - ReadMe.txt
-=================================
+Cyber Slot Terminal 
+===================
 
 🔷 Developed by: Krishnendu Maji
 🔷 Project: Cyber Slot Terminal (aka cst.exe / C.S Terminal)  
